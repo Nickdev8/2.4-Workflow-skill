@@ -1,4 +1,4 @@
 ## Nick ()
 ## Asem (that buff guy)
-## Bram (slasher, darrle, collin)
+## Bram (slasher, darryl, collin)
 ## Jesper (jappie, snikker dude)
